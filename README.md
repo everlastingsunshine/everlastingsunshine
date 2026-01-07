@@ -9,4 +9,6 @@ I love love love loveee pizzapunch (and also other ships too)
 
 My f/o is Noli, I don't mind sharing (except to 007n7, fuck him) voidburger dni for your own safety ok
 
-oh and if you couldn't tell, I'm a heavy elliot kinnie
+oh and if you couldn't tell, I'm a heavy elliot kinnie and a massive simp for Guest 1337
+
+Ask me to be your parent or child, I love being a familial figure for ppl online
