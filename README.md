@@ -1,14 +1,28 @@
 ![elliot-work-at-a-pizza-place](https://github.com/user-attachments/assets/86cebf75-e2e7-4605-946f-f3811657f39f)
 
-github gives me a headache
+# About me:
 
-temporary about me:
-Hi you can call me Sully or any of the characters I'm cosplaying.
+Nn: Sully, Sunny, Silly, Wtv you want to call me!
 
-I love love love loveee pizzapunch (and also other ships too)
+Prns: she/her, any
 
-My f/o is Noli, I don't mind sharing (except to 007n7, fuck him) voidburger dni for your own safety ok
+S-nv user, not the brightest in intelligence X)
 
-oh and if you couldn't tell, I'm a heavy elliot kinnie and a massive simp for Guest 1337
+Heavy Elliot kinnie, Guest1337 & P.R Daniel simp.. (noli too ig)
 
-Ask me to be your parent or child, I love being a familial figure for ppl online
+C+h freely encouraged, Int always unless specified otherwise!
+
+![elliot-guest1337](https://github.com/user-attachments/assets/6eac4696-697e-48e1-b489-651349e39350)
+I love pizzapunch / lastpizza
+
+# Family tree:
+
+Me — [Nyako](https://github.com/toxitivities) (Parents)
+
+Star (1st born, I don't have any of their socials..)
+
+[Milk](https://github.com/Sp0iledM1lk) (2nd born I think, idk it's complicated)
+
+[Storm](https://github.com/StormikStormovich) (3rd born)
+
+the other 66 children are missing...
