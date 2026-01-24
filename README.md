@@ -19,10 +19,12 @@ I love pizzapunch / lastpizza
 
 Me — [Nyako](https://github.com/toxitivities) (Parents)
 
-Star (1st born, I don't have any of their socials..)
+[Star](https://www.tiktok.com/@ad0rqe4?_r=1&_t=ZS-93KfhDm58lO) (1st born)
 
 [Milk](https://github.com/Sp0iledM1lk) (2nd born I think, idk it's complicated)
 
 [Storm](https://github.com/StormikStormovich) (3rd born)
 
-the other 66 children are missing...
+[Nicolette](https://www.tiktok.com/@umagauqze1b?_r=1&_t=ZS-93KfVX6AXt1) (4th born)
+
+the other 65 children are missing...
