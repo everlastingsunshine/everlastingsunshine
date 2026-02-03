@@ -13,13 +13,15 @@ Heavy Elliot kinnie, Guest1337 & P.R Daniel simp.. (noli too ig)
 C+h freely encouraged, Int always unless specified otherwise!
 
 ![elliot-guest1337](https://github.com/user-attachments/assets/6eac4696-697e-48e1-b489-651349e39350)
-I love pizzapunch / lastpizza
+I love pizzapunch / lastpizza, I'm not normal about it
+
+my f/o is Noli and Park Ranger Daniel, I'm cool w sharing. Though, don't mention voidburger around me for your and-slash-or my owns safety
 
 # Family tree:
 
 Me — [Nyako](https://github.com/toxitivities) (Parents)
 
-[Star](https://www.tiktok.com/@ad0rqe4?_r=1&_t=ZS-93KfhDm58lO) (1st born)
+[Star/Inari](https://www.tiktok.com/@ad0rqe4?_r=1&_t=ZS-93KfhDm58lO) (1st born)
 
 [Milk](https://github.com/Sp0iledM1lk) (2nd born I think, idk it's complicated)
 
