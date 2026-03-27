@@ -13,7 +13,7 @@ Heavy Elliot kinnie, Guest1337 & P.R Daniel simp.. (noli too ig)
 C+h freely encouraged, Int always unless specified otherwise!
 
 ![elliot-guest1337](https://github.com/user-attachments/assets/6eac4696-697e-48e1-b489-651349e39350)
-I love pizzapunch / lastpizza, I'm not normal about it
+I love pizzapunch / lastpizza, I'm not normal about it. And I'm looking for more people to join my [pizzapunch DC server](https://discord.gg/Tvn5znyTRK)!
 
 my f/o is Noli and Park Ranger Daniel, I'm cool w sharing. Though, don't mention voidburger around me for your and-slash-or my owns safety
 
